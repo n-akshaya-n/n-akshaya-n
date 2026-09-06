@@ -21,4 +21,4 @@ An engineer focused on building production-grade AI agent systems, Retrieval-Aug
 
 ### 📫 Connect With Me
 
-* **LinkedIn:** [linkedin.com/in/nna-akshaya]([https://linkedin.com/in/your-linkedin-handle](https://www.linkedin.com/in/nna-akshaya/)
+* **LinkedIn:** [linkedin.com/in/nna-akshaya](https://www.linkedin.com/in/nna-akshaya/)
